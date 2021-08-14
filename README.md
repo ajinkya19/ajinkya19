@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ajinkya
+- 👀 I’m interested in Problem Solving, Critical Thinking and Strategy.
+- 🌱 I’m currently learning SAP EWM, Designing and Algorithms.
+- 💞️ I’m looking to collaborate on Management Consulting Projects.
+- 📫 How to reach me - 7776865530
